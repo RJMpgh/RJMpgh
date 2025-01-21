@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning everything i can
 - 💞️ I’m looking to collaborate on people in pittsburgh intersted in helping predict crime trends ect.
 - 📫 How to reach me 727-946-0396 shoot me a text
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I am really intio snowboarding 
 
 <!---
