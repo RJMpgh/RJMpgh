@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning everything i can
 - 💞️ I’m looking to collaborate on people in pittsburgh intersted in helping predict crime trends ect.
 - 📫 How to reach me 727-946-0396 shoot me a text
-- ⚡ Fun fact: I am really intio snowboarding 
+- ⚡ Fun fact: I am really into snowboarding 
 
 <!---
 RJMpgh/RJMpgh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
